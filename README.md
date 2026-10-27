@@ -1,6 +1,6 @@
 ### Hey, I'm James Pemberton 👋
 
-Founder of **BDB Coaching, LLC** and the guy behind **Build Don't Beg**. Navy veteran. Recruiting since 2009 (500+ placements), internet marketing and SEO since 2013.
+Founder of **BDB Coaching, LLC** and the guy behind **Build Don't Beg**. Navy veteran. Recruiting since 2009 (300+ placements), internet marketing and SEO since 2013.
 
 I build AI and automation systems that attract business instead of chasing it.
 
